@@ -1,4 +1,4 @@
-
+premium Script for survive the apocalypse is the best survive the apocalypse Script, featuring no cooldown and auto-sell. Safe and powerful for all
 
 
 
